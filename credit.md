@@ -8,29 +8,31 @@
 
 [ **淘宝不做任何回复**](https://bmxcloud.fun/) ****
 
-## **注册流程（地址：**[**https://bmxcloud.fun**](https://bmxcloud.fun)**）**
+## **注册流程**
 
-![](.gitbook/assets/image%20%2858%29.png)
+###  **官网地址：**[**https://bmxcloud.fun**](https://bmxcloud.fun)**（请复制到浏览器打开）**
 
-![](.gitbook/assets/image%20%2820%29.png)
+![](.gitbook/assets/image%20%2863%29.png)
 
-![](.gitbook/assets/image%20%2846%29.png)
+![](.gitbook/assets/image%20%2822%29.png)
 
-![](.gitbook/assets/image%20%2854%29.png)
+![](.gitbook/assets/image%20%2851%29.png)
 
-![](.gitbook/assets/image%20%2830%29.png)
+![](.gitbook/assets/image%20%2859%29.png)
 
-![](.gitbook/assets/image%20%2829%29.png)
+![](.gitbook/assets/image%20%2832%29.png)
 
-![](.gitbook/assets/image%20%2867%29.png)
+![](.gitbook/assets/image%20%2831%29.png)
+
+![](.gitbook/assets/image%20%2873%29.png)
 
 ![](.gitbook/assets/image%20%284%29.png)
 
-![](.gitbook/assets/image%20%2841%29.png)
+![](.gitbook/assets/image%20%2846%29.png)
 
 ![](.gitbook/assets/image%20%282%29.png)
 
-![](.gitbook/assets/image%20%2828%29.png)
+![](.gitbook/assets/image%20%2830%29.png)
 
 ## 快速跳转使用教程
 
