@@ -1,5 +1,13 @@
 # 苹果手机 - Shadowrocket
 
+## [注意事项](https://bmxcloud.fun/)
+
+[**已经好评的记得加售后QQ群979461290**](https://bmxcloud.fun/)
+
+[**有任何问题联系群管理员QQ:12121233**](https://bmxcloud.fun/)
+
+[ **淘宝不做任何回复**](https://bmxcloud.fun/)\*\*\*\*
+
 ## 软件安装
 
 **请务必使用iOS自带的浏览器Safari打开此链接，其他浏览器无效**
