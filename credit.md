@@ -2,9 +2,9 @@
 
 ## [注意事项](https://bmxcloud.fun/)
 
-[**已经好评的记得加售后QQ群979461290**](https://bmxcloud.fun/)
+[**已经好评的记得加售后QQ群**](https://bmxcloud.fun/)**：**679066245
 
-[**有任何问题联系群管理员QQ:12121233**](https://bmxcloud.fun/)
+[**有任何问题联系群管理员**](https://bmxcloud.fun/)
 
 [ **淘宝不做任何回复**](https://bmxcloud.fun/) ****
 
