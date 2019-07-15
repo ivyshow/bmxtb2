@@ -9,5 +9,5 @@
   * [苹果电脑 - 斑马线](use/macos.md)
 * [第三方工具使用教程](other/README.md)
   * [PC电脑 - SStap](other/sstap.md)
-  * [PC电脑 - ShadowsocksR](other/pc-dian-nao-shadowsocksr.md)
+  * [PC电脑 - ShadowsocksR](other/ssr.md)
 

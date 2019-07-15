@@ -14,27 +14,27 @@
 
 ###  备用地址：[https://bmxcloud.app](https://bmxcloud.app)
 
-![](.gitbook/assets/image%20%2865%29.png)
+![](.gitbook/assets/image%20%2869%29.png)
 
 ![](.gitbook/assets/image%20%2822%29.png)
 
-![](.gitbook/assets/image%20%2853%29.png)
+![](.gitbook/assets/image%20%2856%29.png)
 
-![](.gitbook/assets/image%20%2861%29.png)
+![](.gitbook/assets/image%20%2865%29.png)
+
+![](.gitbook/assets/image%20%2833%29.png)
 
 ![](.gitbook/assets/image%20%2832%29.png)
 
-![](.gitbook/assets/image%20%2831%29.png)
-
-![](.gitbook/assets/image%20%2875%29.png)
+![](.gitbook/assets/image%20%2880%29.png)
 
 ![](.gitbook/assets/image%20%284%29.png)
 
-![](.gitbook/assets/image%20%2846%29.png)
+![](.gitbook/assets/image%20%2848%29.png)
 
 ![](.gitbook/assets/image%20%282%29.png)
 
-![](.gitbook/assets/image%20%2830%29.png)
+![](.gitbook/assets/image%20%2831%29.png)
 
 ## 快速跳转使用教程
 
