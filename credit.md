@@ -10,9 +10,9 @@
 
 ## **注册流程**
 
-###  **官网地址：**[**https://bmxcloud.pro**](https://bmxcloud.pro)**（请复制到浏览器打开）**
+###  **官网地址：https://bmxcloud.pro（请复制到浏览器打开）**
 
-###  备用地址：[https://bmxcloud.app](https://bmxcloud.app)
+###  备用地址：https://bmxcloud.app
 
 ![](.gitbook/assets/image%20%2869%29.png)
 
