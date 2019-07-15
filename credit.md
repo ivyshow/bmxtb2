@@ -10,21 +10,23 @@
 
 ## **注册流程**
 
-###  **官网地址：**[**https://bmxcloud.fun**](https://bmxcloud.fun)**（请复制到浏览器打开）**
+###  **官网地址：**[**https://bmxcloud.pro**](https://bmxcloud.pro)**（请复制到浏览器打开）**
 
-![](.gitbook/assets/image%20%2863%29.png)
+###  备用地址：[https://bmxcloud.app](https://bmxcloud.app)
+
+![](.gitbook/assets/image%20%2865%29.png)
 
 ![](.gitbook/assets/image%20%2822%29.png)
 
-![](.gitbook/assets/image%20%2851%29.png)
+![](.gitbook/assets/image%20%2853%29.png)
 
-![](.gitbook/assets/image%20%2859%29.png)
+![](.gitbook/assets/image%20%2861%29.png)
 
 ![](.gitbook/assets/image%20%2832%29.png)
 
 ![](.gitbook/assets/image%20%2831%29.png)
 
-![](.gitbook/assets/image%20%2873%29.png)
+![](.gitbook/assets/image%20%2875%29.png)
 
 ![](.gitbook/assets/image%20%284%29.png)
 

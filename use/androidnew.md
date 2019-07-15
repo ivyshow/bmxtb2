@@ -10,7 +10,7 @@
 
 ## APP下载
 
-#### [点击下载](https://www.lanzous.com/i41oc4f)
+#### [点击下载](https://www.lanzous.com/bmxcloudapk)
 
 ## 使用教程
 
@@ -18,7 +18,7 @@
 
 ![](../.gitbook/assets/image%20%2834%29.png)
 
-![](../.gitbook/assets/image%20%2878%29.png)
+![](../.gitbook/assets/image%20%2880%29.png)
 
 ![](../.gitbook/assets/image%20%289%29.png)
 

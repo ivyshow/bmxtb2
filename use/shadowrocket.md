@@ -14,17 +14,17 @@
 
 **在线安装点击后会有AppStore帐户信息显示，第一次打开APP需要登录一次**
 
-#### [在线安装1](https://bmxcloud.fun/download/bmxios/shadowrocket/index.html)
+#### [在线安装1](https://bmxcloud.app/download/bmxios/shadowrocket/index.html)
 
-#### [在线安装2](https://ios.bmx168.com:12443/shadowrocket/) 
+#### [在线安装2](https://bmxcloud.pro/download/bmxios/shadowrocket/index.html) 
 
 ## 使用教程
 
 ![](../.gitbook/assets/image%20%2843%29.png)
 
-![](../.gitbook/assets/image%20%2855%29.png)
+![](../.gitbook/assets/image%20%2857%29.png)
 
-![](../.gitbook/assets/image%20%2876%29.png)
+![](../.gitbook/assets/image%20%2878%29.png)
 
 ![](../.gitbook/assets/image%20%2813%29.png)
 
@@ -32,7 +32,7 @@
 
 ![](../.gitbook/assets/image%20%2840%29.png)
 
-![](../.gitbook/assets/image%20%2865%29.png)
+![](../.gitbook/assets/image%20%2867%29.png)
 
 ![](../.gitbook/assets/image.png)
 
@@ -40,13 +40,13 @@
 
 ![](../.gitbook/assets/image%20%2818%29.png)
 
-![](../.gitbook/assets/image%20%2857%29.png)
+![](../.gitbook/assets/image%20%2859%29.png)
 
 ![](../.gitbook/assets/image%20%2810%29.png)
 
-![](../.gitbook/assets/image%20%2860%29.png)
+![](../.gitbook/assets/image%20%2862%29.png)
 
-![](../.gitbook/assets/image%20%2869%29.png)
+![](../.gitbook/assets/image%20%2871%29.png)
 
 ![](../.gitbook/assets/image%20%2841%29.png)
 

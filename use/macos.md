@@ -10,7 +10,7 @@
 
 ## **软件下载**
 
-#### [点击下载](https://www.lanzous.com/i41rn8d)
+#### [点击下载](https://www.lanzous.com/bmxcloudmac)
 
 ## **使用教程**
 

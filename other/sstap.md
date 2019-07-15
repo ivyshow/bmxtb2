@@ -2,25 +2,25 @@
 
 ## 软件下载
 
-#### [点击下载](https://www.lanzous.com/i41r27g)
+#### [点击下载](https://www.lanzous.com/bmxcloudsstap)
 
 ## 使用教程
 
-![](../.gitbook/assets/image%20%2864%29.png)
+![](../.gitbook/assets/image%20%2866%29.png)
 
-![](../.gitbook/assets/image%20%2871%29.png)
+![](../.gitbook/assets/image%20%2873%29.png)
 
 ![](../.gitbook/assets/image%20%2814%29.png)
 
 ![](../.gitbook/assets/image%20%2829%29.png)
 
-![](../.gitbook/assets/image%20%2875%29.png)
-
-![](../.gitbook/assets/image%20%2866%29.png)
+![](../.gitbook/assets/image%20%2877%29.png)
 
 ![](../.gitbook/assets/image%20%2868%29.png)
 
-![](../.gitbook/assets/image%20%2861%29.png)
+![](../.gitbook/assets/image%20%2870%29.png)
+
+![](../.gitbook/assets/image%20%2863%29.png)
 
 ![](../.gitbook/assets/image%20%2844%29.png)
 

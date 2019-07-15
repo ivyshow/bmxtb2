@@ -10,7 +10,7 @@
 
 ## 软件下载
 
-#### [点击下载](https://www.lanzous.com/i3sie2f) 
+#### [点击下载](https://www.lanzous.com/bmxcloudwin) 
 
 ## 已知问题
 
@@ -43,7 +43,7 @@
 
 ![](../.gitbook/assets/image-30.png)
 
-![](../.gitbook/assets/image%20%2853%29.png)
+![](../.gitbook/assets/image%20%2855%29.png)
 
 
 
